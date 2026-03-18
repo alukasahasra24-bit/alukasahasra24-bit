@@ -1,4 +1,4 @@
-# Hi, I'm Sahasra 👋
+# Hi, I'm Sahasra 
 
 🎓 Computer Science Student @ Missouri State University (Minor in Mathematics)  
 📍 Springfield, MO  
